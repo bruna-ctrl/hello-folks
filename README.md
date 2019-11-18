@@ -1,5 +1,4 @@
 # hello-folks
 Just another repository
-aprender programacao se torno um sonho pra mim
-pois sei que posso fazer muitas coisas atrav disso , nao so pra mim mais pra outras pessoas
-afinal, nao e o mundo que muda as pessoas e sim as pessoas que muda o mundo.
+sou nova aqui, mais acredito que posso aprender muito.
+tenho dispozicao, coragem e forca de vontada para aprender o que sera necessario.
